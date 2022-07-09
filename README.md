@@ -1,0 +1,5 @@
+- hi! i'm charley.
+- currently, despite only part of the way through highschool, i'm looking into a technology-based career or college degree to work towards and be prepared for.
+- last year, i was a part of a website development class and received my adobe certification in adobe dreamweaver within may 2022! sadly, due to scheduling, i cannot take a similar class this upcoming year.
+- i would be willing to collaborate on simple things, just so i can continue to learn more about coding and technology similar to this.
+- a good way to contact me would be through my personal email, charleywoodsum52@gmail.com :)
